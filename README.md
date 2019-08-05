@@ -31,3 +31,11 @@ python3
 
 
 colorama
+
+-ColoramaFull-
+
+add 2 gay's alien
+
+add E.T
+
+add area 51.
